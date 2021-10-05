@@ -13,3 +13,4 @@ MADE BY TEAM ALEX
 
 [LEGENDBOY](https://github.com/LEGEND-OS)
 
+[RUN ON REPL IT ] (https://replit.com/@Dhrubamoy/Alex-EveyUserbot?v=1)
