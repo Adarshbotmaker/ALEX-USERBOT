@@ -8,9 +8,8 @@ Userbot comming soon credits comming soon
 Work on process 
 
 
-Special credit to
+ALEX USERBOT A POWERFULL USERBOT ✌️
 
+MADE BY TEAN ALEX 
 
-
-https://t.me/Legend_Userbot
 
